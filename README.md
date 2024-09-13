@@ -8,5 +8,6 @@ to make it big in the technology industry so that my success story is a testamen
 out there who are as well passionate about technology that they can make it.
 ### my goal
 to make is as one of the leading computer scientists in uganda
-``` 
+```
+my experience 
 
